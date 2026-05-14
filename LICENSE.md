@@ -1,4 +1,4 @@
-
+updated Touch VPN Addon | static-IP + multi-device-support offers the most advanced Touch VPN addon, with static-IP and multi-device-support. Ideal for users who value privacy and
 
 
 
